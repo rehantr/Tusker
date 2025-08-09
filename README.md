@@ -60,7 +60,7 @@ For Hardware:
 ### Proje![WhatsApp Image 2025-08-09 at 18 10 52_c46857e6](https://github.com/user-attachments/assets/03e21411-8276-4566-8d0f-7820cd688391)
 ct Demo
 # Video
-
+https://drive.google.com/file/d/1SC8inYLy4LE7prjiE7fTE2fgG2YhnrlW/view?usp=sharing
 
 
 
